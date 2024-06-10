@@ -15,5 +15,5 @@ Luiz Bernardo de Jesus Ayres
   
 Contato: 00001088411411sp@al.educacao.sp.gov.br
 
-![](https://tenor.com/pt-BR/view/neymar-neymar-jr-raphina-paqueta-lucas-paqute-gif-26907368)
+![](https://media1.tenor.com/m/uPjYI7Z6OukAAAAd/neymar-neymar-jr.gif)
 
