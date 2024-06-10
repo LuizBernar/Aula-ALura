@@ -13,5 +13,7 @@ Luiz Bernardo de Jesus Ayres
 - Lugares para comprar sneackers originais
 - Lugares para comprar chuteiras originais
   
+Contato: 00001088411411sp@al.educacao.sp.gov.br
 
-- 
+![](https://tenor.com/pt-BR/view/neymar-neymar-jr-raphina-paqueta-lucas-paqute-gif-26907368)
+
